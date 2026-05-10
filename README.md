@@ -70,7 +70,7 @@ Currently pursuing MCA and actively seeking internship opportunities to grow as 
 ## 📫 Connect With Me
 
 - 💼 LinkedIn: https://www.linkedin.com/in/pranjal-mahajan-21a7ba361  
-- 📧 Email: pranjalmahajan2329@gmail.com  
+- 📧 Email: pranjalmahajan2329@gmail.com   
 - 💻 GitHub: https://github.com/Pranjal-mahajan113  
 
 
